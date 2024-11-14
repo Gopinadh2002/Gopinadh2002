@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber Securtiy and new technical tools exploring
 - 🌱 I’m currently learning DevOps tools 
 - 💞️ I’m looking to collaborate on companies which can help the interns, students to learn a high stuff on industrial basis
-- 📫 How to reach me : you ca nreach me through mail(gopinadhpolukonda2004@gmail.com) or linkedin(www.linkedin.com/in/gopinadh-polukondada-bb5a4a289)
+- 📫 How to reach me : you can reach me through mail(gopinadhpolukonda2004@gmail.com) or linkedin(www.linkedin.com/in/gopinadh-polukondada-bb5a4a289)
 - ⚡ Fun fact: The more you become silent, the more you can listen.  
 
 <!---
